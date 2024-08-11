@@ -1,2 +1,2 @@
 # capyHacker.github.io
-sa
+i dont know how to use this thing lol
